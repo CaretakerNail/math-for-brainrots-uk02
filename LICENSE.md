@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with math for brainrots Scripts top, the #1 Script. Includes no cooldown and custom skins for
 
 
 
